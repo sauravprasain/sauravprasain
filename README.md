@@ -14,3 +14,6 @@ https://twitter.com/prasain_saurav
 
 https://dev.to/sauravprasain
 
+https://medium.com/@sauravprasain
+
+https://angel.co/u/saurav-prasain
